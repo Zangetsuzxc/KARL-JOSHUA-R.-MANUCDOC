@@ -1,5 +1,5 @@
 # BSCpE 4 -KARL-JOSHUA-R.-MANUCDOC
 # 22
 # STO NINO GAPAN CITY NUEVA ECIJA
-# EMAIL
+# karlmanucdoc@gmail.com
 # 20-1489-417
